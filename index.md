@@ -8,4 +8,4 @@ Hello Relatives, my English name is Angelina Wade and my Nakota name is Red Fire
 ![pic of trees](https://imgs.mongabay.com/wp-content/uploads/sites/20/2015/09/03164048/pittsfield_state_forest_153.jpg)
 
 #### Contact Information
-* Email: awade29716@olc.edu
+* [Email:](awade29716@olc.edu)
